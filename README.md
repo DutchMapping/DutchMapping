@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @DutchMapping
+- 👀 I’m interested in history and politics (I know, worst combination possible)
+- 📫 If you want to contact me, do so via discord at DutchMapping#1573
